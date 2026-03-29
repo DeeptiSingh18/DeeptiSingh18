@@ -30,6 +30,7 @@
 ## 📫 Connect with me
 - LinkedIn: (https://www.linkedin.com/in/deepti-singh-8b60bb385/)
 - Kaggle: (https://www.kaggle.com/deeptisingh18)
+- Email: (deeptirsingh20@gmail.com)
 
 ---
 
